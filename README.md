@@ -1,2 +1,8 @@
-# Social-Links
-Click on the links to join
+# Click on below links to start Your Journey
+
+## Join our Server Now 
+
+- [whatsApp Community](https://chat.whatsapp.com/DwwlhdEgCyZ81bx04Fhzrv)
+- [Telegram](https://t.me/+WcxUD88ndrFlNjA1)
+- [Discord Link](https://discord.gg/ZD8MFB3zNp)
+  
