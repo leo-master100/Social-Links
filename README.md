@@ -1,6 +1,6 @@
-# Click on below links to start Your Journey
+# Start Your journey by joining our team
 
-## Join our Team Now 
+## Click to join now 👇 
 
 - [whatsApp Community](https://chat.whatsapp.com/DwwlhdEgCyZ81bx04Fhzrv)
 - [Telegram](https://t.me/+WcxUD88ndrFlNjA1)
